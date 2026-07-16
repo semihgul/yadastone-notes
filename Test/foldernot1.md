@@ -1,3 +1,0 @@
-# foldernot1
-
-denemes
